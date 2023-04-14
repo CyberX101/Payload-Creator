@@ -4,7 +4,9 @@
 
 [+] Developer : Cyber Max 
 
-[+] Telegram : https//t.me/CyberSpyWare
+[+] Telegram : https://t.me/CyberSpyWare
+
+
 
 
 
